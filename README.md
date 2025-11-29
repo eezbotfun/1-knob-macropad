@@ -1,5 +1,5 @@
 
-![knob-1](https://github.com/user-attachments/assets/58a4a1d5-3cf6-41bd-b27b-16d53d5520b5)
+![IMG_0841](https://github.com/user-attachments/assets/f5a2fe1a-2d8c-46d9-aa92-4c84f998a4f4)
 ![knob-2](https://github.com/user-attachments/assets/62bc80f7-7001-45d5-98ac-e6a1d67b2011)
 ![knob-3](https://github.com/user-attachments/assets/41112d62-e04a-400a-a05f-4475e01db768)
 # 1-knob-macropad
